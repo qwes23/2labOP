@@ -41,8 +41,7 @@
 
 
 
-![](im/Aspose.Words.f6850a1c-9195-497b-9ca4-cd01b1129a25.002.png)** 
-**
+![](im/Aspose.Words.f6850a1c-9195-497b-9ca4-cd01b1129a25.002.png)
 
 
 
